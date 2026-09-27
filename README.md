@@ -7,3 +7,4 @@
 ## Interests
 * Drawing
 * Gardening
+* Woodworking
